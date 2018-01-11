@@ -1,0 +1,1 @@
+# Norwegian-language-for-SNESC
